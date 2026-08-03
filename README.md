@@ -1,1 +1,4 @@
-# TraciVinet
+Highly organized administrative professional with more than 20 years of experience supporting government operations, legal and regulatory compliance, records management, financial administration, customer service, and day-to-day office operations. Experienced maintaining accurate records, processing confidential documentation, tracking information, preparing reports, coordinating administrative processes, and ensuring compliance with established policies and procedures.
+Brings a strong background in state and county government, document review, records management, data entry, financial accountability, training support, and handling sensitive information with discretion. Experienced working with multiple departments and stakeholders while managing competing priorities and maintaining a high level of accuracy.
+Known for professionalism, reliability, attention to detail, strong communication, and the ability to learn and follow complex policies, procedures, and regulatory requirements. 
+# TraciVinet # Traci Vinet # traci vinet
